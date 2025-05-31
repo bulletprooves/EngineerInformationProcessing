@@ -1,2 +1,16 @@
 # EngineerInformationProcessing
 정보처리시사 실기 정리
+![0](https://github.com/user-attachments/assets/9bb25780-0f0a-44fd-8919-ff4c10d62f9c)
+![1](https://github.com/user-attachments/assets/0b6dab88-14a6-44cc-9eea-f3c65871b9aa)
+![2](https://github.com/user-attachments/assets/2f017aeb-85c6-421c-8755-76c612757599)
+![3](https://github.com/user-attachments/assets/50d974d4-6c55-48fb-b751-18780b6c58ff)
+![4](https://github.com/user-attachments/assets/b33a5d39-1507-4503-a533-7ede89eea5e4)
+![5](https://github.com/user-attachments/assets/683d0c77-fbec-4319-9bc9-af778d66e395)
+![6](https://github.com/user-attachments/assets/67c8c769-3c9b-48b4-8914-00999eafc83a)
+![7](https://github.com/user-attachments/assets/991ac8c9-b7d9-4266-a8b5-601ab56d4897)
+![8](https://github.com/user-attachments/assets/6e9624bc-4240-485b-a376-58b82dff84ad)
+![9](https://github.com/user-attachments/assets/c239ccb1-7846-4ced-bcc7-61569e3ae9e7)
+![a](https://github.com/user-attachments/assets/6ac46c2e-5593-4073-911f-9aa3d6197013)
+![b](https://github.com/user-attachments/assets/7d62580e-d12c-412b-8af9-5adbd94bd8e5)
+![c](https://github.com/user-attachments/assets/69df071f-bf12-40e5-b568-0e0b0d2a300b)
+![d](https://github.com/user-attachments/assets/e13525ba-6d0f-4939-9904-ff9565500710)
